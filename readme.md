@@ -1,6 +1,6 @@
 2024-2025(c)
 HUXP Media Group - Jordan
-contact Email: HmzHassan8@gmail.com
+contact Email: HUXPjo@proton.me
 -----------------------------------------------------
 thank you for downloading the lnkme (Link Me) Website
 source code, this code is open source & free for use.
